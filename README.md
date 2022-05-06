@@ -1,3 +1,5 @@
-Hi, im Mastergamer433
-i am a beginner programmer.
-you can contact me at twitter(https://www.twitter.com/Mastergamer43/), Mail(contact@mastergamer433.com) but reply to email max 6 times per month so if you want to have a reply very soon so contact me on twitter
+Hi, im Mastergamer433 a guy that likes programming.
+I am an intermediate programmer.
+You can contact me at twitter(https://www.twitter.com/Mastergamer43/), Mail(teknikgillaren@gmail.com).
+
+If you wanna collaborate on something contact me on discord and not Twitter or email my discord is: Mastergamer433#5762
